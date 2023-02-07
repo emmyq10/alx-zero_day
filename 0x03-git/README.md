@@ -1,1 +1,1 @@
-do hard things
+I will do hard things i know
